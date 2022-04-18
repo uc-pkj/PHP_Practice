@@ -1,1 +1,1 @@
-[Jigyaasa](<a src="https://www.google.co.in" target="_blank">)
+[Jigyaasa](https://www.google.co.in)
